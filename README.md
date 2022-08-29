@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Heewol
+- 👀 I’m interested in writing a novel
+- 🌱 I’m currently learning C언어
+- 📫 How to reach me Discord ·˚𝔸⭑₊ 熙月_달냥이#9157
